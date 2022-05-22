@@ -1,0 +1,1 @@
+# -MoonSecec-FiveM-Global-Bypass-Crypto
